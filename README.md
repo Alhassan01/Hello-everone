@@ -1,1 +1,1 @@
-# Hello-everone
+# Hello-everyone, My name is Alhassan Sesay. I'm a computer Science students at Universty of Management and Technology (UNIMTECH) Siera Leone. I'm in degree 2. I really want to use this platform to learn more and join a developer team.
